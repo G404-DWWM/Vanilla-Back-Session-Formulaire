@@ -18,8 +18,7 @@ Nous vous proposons à nouveau d'utiliser ces cours OC pour la suite des exercic
 [Les formulaires par Rémi](https://docs.google.com/presentation/d/1s_YQhyToozGasCbj76fdUauB0uMOZh9x_d91hMzXI74/edit?usp=sharing)
 
 
-#  \
-⛳ Exercices
+#  ⛳ Exercices
 
 
 ## 
